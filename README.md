@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Goitseone Rakgomo  
+# 👋 Hi, Tumelo Rakabe 
 
 🎓 Final-year Computer Science student | 💻 Software Engineer | ☁️ Cloud Enthusiast  
 
